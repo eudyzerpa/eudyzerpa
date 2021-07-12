@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @eudyzerpa
 - 👀 I’m interested in #SEO #DigitalMarketing #Cybersecurity #Infosecurity #Privacy #Voip #Videoconference #UComms
 - 🌱 I’m currently learning #DigitalMarketing
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on #DigitalMarketng
 - 📫 How to reach me: @eudyzerpa , eudyzerpa@protonmail.com
 
 <!---
