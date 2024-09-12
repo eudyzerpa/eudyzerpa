@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eudyzerpa
-- 👀 I’m interested in #SEO #DigitalMarketing #Cybersecurity #Infosecurity #Privacy #Voip #Videoconference #UComms
+- 👀 I’m interested in #Cybersecurity #Infosecurity #Privacy #Voip #Videoconference #UComms #SEO #DigitalMarketing
 - 🌱 I’m currently learning #DigitalMarketing & #Cybersecurity
 - 💞️ I’m looking to collaborate on #DigitalMarketng 
 - 📫 How to reach me: IG: @eudy.zerpa
